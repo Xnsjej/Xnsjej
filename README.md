@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on digital forensic investigations
 - 📫 How to reach me samuelwaithaka432@gmail.com
 - 😄 Pronouns: I,Mr.
-- fun fact: The global cost of cybercrime is expected to reach $10.5 trillion annually by 2025.
-- That’s more profitable than the illegal drug trade, leaving jaws on the floor everywhere. 🌎💻
+- fun fact: The global cost of cybercrime is expected to reach $10.5 trillion annually by 2025.That’s more profitable than the illegal drug trade, leaving jaws on the floor everywhere. 🌎💻
 
 
 <!---
